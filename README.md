@@ -1,1 +1,0 @@
-selam ilkk site
